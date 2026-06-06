@@ -6,6 +6,7 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 
 <img width="640" height="126" alt="image" src="https://github.com/user-attachments/assets/ba2d4b8e-f01b-49ad-a734-0106d2f0400c" />
 
+[@undyingregret](https://github.com/undyingregret) as Pony Town's biggest Kasper fan
 
 [@omegamaie](https://github.com/omegamaie) as Pony Town's biggest Jason Todd fan
 
