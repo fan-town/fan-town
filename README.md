@@ -15,3 +15,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@mlgkent](https://github.com/mlgkent) as Pony Town's biggest Damian Wayne fan
 
 [@timdraked](https://github.com/timdraked) as Pony Town's biggest Tim Drake fan
+
+[@riddledbatz](https://github.com/riddledbatz) as Pony Town's biggest Riddler fan
