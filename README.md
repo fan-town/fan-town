@@ -28,3 +28,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@sir-chloe](https://github.com/sir-chloe) as Pony Town's biggest **Astro** fan
 
 [@qnakin](https://github.com/qnakin) as Pony Town's biggest **Anakin Skywalker** fan
+
+[@orthowo](https://github.com/orthowo) as Pony Town's biggest **Idia Shroud** fan
