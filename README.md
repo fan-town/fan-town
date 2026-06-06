@@ -30,3 +30,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@qnakin](https://github.com/qnakin) as Pony Town's biggest **Anakin Skywalker** fan
 
 [@orthowo](https://github.com/orthowo) as Pony Town's biggest **Idia Shroud** fan
+
+[@yeiiowjackets](https://github.com/yeiiowjackets) as Pony Town's biggest **Shauna Shipman** fan
