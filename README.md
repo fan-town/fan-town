@@ -26,3 +26,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@faelinnea](https://github.com/faelinnea) as Pony Town's biggest **Linnea** fan
 
 [@sir-chloe](https://github.com/sir-chloe) as Pony Town's biggest **Astro** fan
+
+[@qnakin](https://github.com/qnakin) as Pony Town's biggest **Anakin Skywalker** fan
