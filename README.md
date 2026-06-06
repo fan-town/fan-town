@@ -8,7 +8,7 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 
 🍎
 
-[@undyingregret](https://github.com/undyingregret) as Pony Town's biggest Kasper fan
+[@undyingregret](https://github.com/undyingregret) as Pony Town's biggest Kasper/Infected fan
 
 [@omegamaie](https://github.com/omegamaie) as Pony Town's biggest Jason Todd fan
 
