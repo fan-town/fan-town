@@ -24,3 +24,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@WeepingArchangel](https://github.com/WeepingArchangel) as Pony Town's biggest **Karl** fan
 
 [@faelinnea](https://github.com/faelinnea) as Pony Town's biggest **Linnea** fan
+
+[@sir-chloe](https://github.com/sir-chloe) as Pony Town's biggest **Astro** fan
