@@ -2,7 +2,7 @@
 
 Inspired by [@title-town](https://github.com/title-town)
 
-This page was made to recongnize all of the BIGGEST fans of Pony Town. This was only made for enjoyment purposes, send a request [here](https://fantown.straw.page) if youd like to submit someone or yourself!
+This page was made to recongnize all of the BIGGEST fans of Pony Town. This was only made for enjoyment purposes, send a request [here](https://fantown.atabook.org) if youd like to submit someone or yourself!
 
 
 
