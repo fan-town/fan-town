@@ -22,3 +22,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@cyberiife](https://github.com/cyberiife) as Pony Town's biggest **Connor** fan
 
 [@WeepingArchangel](https://github.com/WeepingArchangel) as Pony Town's biggest **Karl** fan
+
+[@faelinnea](https://github.com/faelinnea) as Pony Town's biggest **Linnea** fan
