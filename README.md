@@ -2,8 +2,7 @@
 
 Inspired by [@title-town](https://github.com/title-town)
 
-This page was made to recongnize all of the BIGGEST fans of Pony Town. This was only made for enjoyment purposes, send a request [here](https://fantown.atabook.org) if youd like to submit someone or yourself!
-
+This page was made to recongnize all of the BIGGEST fans of Pony Town. This was only made for enjoyment purposes, send a request [here](https://fantown.atabook.org) if youd like to submit someone or yourself! You can also use the request area to get someone removed, for a valid reason.
 
 
 🍎
@@ -17,3 +16,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@timdraked](https://github.com/timdraked) as Pony Town's biggest Tim Drake fan
 
 [@riddledbatz](https://github.com/riddledbatz) as Pony Town's biggest Riddler fan
+
+[@glamorama](https://github.com/glamorama) as Pony Town's biggest Milhouse fan
