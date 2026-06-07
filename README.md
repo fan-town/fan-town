@@ -17,7 +17,7 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 
 [@riddledbatz](https://github.com/riddledbatz) as Pony Town's biggest **Riddler** fan
 
-[@glamorama](https://github.com/glamorama) as Pony Town's biggest **Milhouse** fan
+[@glamorama](https://github.com/glamorama) as Pony Town's biggest **Bart** fan
 
 [@cyberiife](https://github.com/cyberiife) as Pony Town's biggest **Connor** fan
 
