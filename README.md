@@ -40,3 +40,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@gamblersi](https://github.com/gamblersi) as Pony Town's biggest **Chance** fan
 
 [@5poke](https://github.com/5poke) as Pony Town's biggest **Bachikin** fan
+
+[@UICTIM](https://github.com/UICTIM) as Pony Town's biggest **The Dark Lord** fan
