@@ -38,3 +38,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@kookoobound](https://github.com/kookoobound) as Pony Town's biggest **The Tourist** fan
 
 [@gamblersi](https://github.com/gamblersi) as Pony Town's biggest **Chance** fan
+
+[@5poke](https://github.com/5poke) as Pony Town's biggest **Bachikin** fan
