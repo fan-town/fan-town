@@ -42,3 +42,9 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@5poke](https://github.com/5poke) as Pony Town's biggest **Bachikin** fan
 
 [@UICTIM](https://github.com/UICTIM) as Pony Town's biggest **The Dark Lord** fan
+
+[@thelasttwilight](https://github.com/thelasttwilight) as Pony Town's biggest **Spiderman** fan
+
+[@exiledscholar](https://github.com/exiledscholar) as Pony Town's biggest **Dottore** fan
+
+[@ov3rca5t](https://github.com/ov3rca5t) as Pony Town's biggest **Contractee** fan
