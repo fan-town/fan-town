@@ -36,3 +36,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@mutiiator](https://github.com/mutiiator) as Pony Town's biggest **Postman** fan
 
 [@kookoobound](https://github.com/kookoobound) as Pony Town's biggest **The Tourist** fan
+
+[@gamblersi](https://github.com/gamblersi) as Pony Town's biggest **Chance** fan
