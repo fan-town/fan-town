@@ -48,3 +48,7 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@exiledscholar](https://github.com/exiledscholar) as Pony Town's biggest **Dottore** fan
 
 [@ov3rca5t](https://github.com/ov3rca5t) as Pony Town's biggest **Contractee** fan
+
+[@jellyfizzz](https://github.com/jellyfizzz) as Pony Town's biggest **Mizuku Akiyama** fan
+
+[@dogpriest](https://github.com/dogpriest) as Pony Town's biggest **Darkheart** fan
