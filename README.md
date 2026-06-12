@@ -59,3 +59,5 @@ I put in new people whenever I am avalible, thank you for your patience!
 [@infugue](https://github.com/infuge) as Pony Town's biggest **Sunday** fan
 
 [@Idrocstar](https://github.com/Idrocstar) as Pony Town's biggest **Silent Salt** fan
+
+[@Sunsetshour](https://github.com/Sunsetshour) as Pony Town's biggest **Accardi** fan
