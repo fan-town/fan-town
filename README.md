@@ -52,3 +52,5 @@ This page was made to recongnize all of the BIGGEST fans of Pony Town. This was 
 [@jellyfizzz](https://github.com/jellyfizzz) as Pony Town's biggest **Mizuku Akiyama** fan
 
 [@dogpriest](https://github.com/dogpriest) as Pony Town's biggest **Darkheart** fan
+
+[@m3gurine]((https://github.com/m3gurine) as Pony Town's biggest **Megurine Luka** fan
