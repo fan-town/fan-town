@@ -4,6 +4,7 @@ Inspired by [@title-town](https://github.com/title-town)
 
 This page was made to recongnize all of the BIGGEST fans of Pony Town. This was only made for enjoyment purposes, send a request [here](https://fantown.atabook.org) if youd like to submit someone or yourself! You can also use the request area to get someone removed, for a valid reason.
 
+I put in new people whenever I am avalible, thank you for your patience!
 
 🍎
 
