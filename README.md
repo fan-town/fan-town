@@ -61,3 +61,5 @@ I put in new people whenever I am avalible, thank you for your patience!
 [@Idrocstar](https://github.com/Idrocstar) as Pony Town's biggest **Silent Salt** fan
 
 [@Sunsetshour](https://github.com/Sunsetshour) as Pony Town's biggest **Accardi** fan
+
+[@Fieldofstrawberries](https://github.com/Fieldofstrawberries) as Pony Town's biggest **Sprout** fan
