@@ -56,7 +56,7 @@ I put in new people whenever I am avalible, thank you for your patience!
 
 [@m3gurine](https://github.com/m3gurine) as Pony Town's biggest **Megurine Luka** fan
 
-[@infugue](https://github.com/infuge) as Pony Town's biggest **Sunday** fan
+[@infugue](https://github.com/infugue) as Pony Town's biggest **Sunday** fan
 
 [@Idrocstar](https://github.com/Idrocstar) as Pony Town's biggest **Silent Salt** fan
 
