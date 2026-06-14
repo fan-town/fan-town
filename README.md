@@ -36,7 +36,7 @@ I put in new people whenever I am avalible, thank you for your patience!
 
 [@mutiiator](https://github.com/mutiiator) as Pony Town's biggest **Postman** fan
 
-[@kookoobound](https://github.com/kookoobound) as Pony Town's biggest **The Tourist** fan
+[@eggchannie](https://github.com/eggchannie) as Pony Town's biggest **The Tourist** fan
 
 [@gamblersi](https://github.com/gamblersi) as Pony Town's biggest **Chance** fan
 
