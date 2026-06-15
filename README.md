@@ -67,3 +67,5 @@ I put in new people whenever I am avalible, thank you for your patience!
 [@kiwiconic](https://github.com/kiwiconic) as Pony Town's biggest **Boxten** fan
 
 [@yaoiliker](https://github.com/yaoilikee) as Pony Town's biggest **Stan Marsh** fan
+
+[@gambleghost](https://github.com/gambleghost) as Pony Town's biggest **Connie** fan
