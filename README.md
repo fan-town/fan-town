@@ -16,8 +16,6 @@ I put in new people whenever I am avalible, thank you for your patience!
 
 [@timdraked](https://github.com/timdraked) as Pony Town's biggest **Tim Drake** fan
 
-[@riddledbatz](https://github.com/riddledbatz) as Pony Town's biggest **Riddler** fan
-
 [@glamorama](https://github.com/glamorama) as Pony Town's biggest **Bart** fan
 
 [@cyberiife](https://github.com/cyberiife) as Pony Town's biggest **Connor** fan
