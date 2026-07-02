@@ -8,7 +8,7 @@ I put in new people whenever I am avalible, thank you for your patience!
 
 🍎
 
-[@undyingregret](https://github.com/undyingregret) as Pony Town's biggest **Kasper/Infected** fan
+[@undyingregret](https://github.com/undyingregret) as Pony Town's biggest **Azurewrath** fan
 
 [@omegamaie](https://github.com/omegamaie) as Pony Town's biggest **Jason Todd** fan
 
